@@ -1,7 +1,6 @@
 ### Hi there 👋
 
 # 💫 About Me:
-hi
 
 
 ## 🌐 Socials:
